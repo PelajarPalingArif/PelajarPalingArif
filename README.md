@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PelajarPalingLahanat
+- 👋 Hi, I’m @PelajarPalingArif
 - 👀 I’m interested in learning more until i die and solving problems
 - 🌱 I’m currently learning on to become a better person
 - 💞️ I’m looking to collaborate on nothing atm
