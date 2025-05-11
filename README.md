@@ -1,4 +1,3 @@
-Hello, I am a fresh graduate passionate about tech and looking for jobs in the industry.
-Contact me below to get my resume. 🤗
+1. Suffering is innate
 
-Contact : arifraihan062003@gmail.com 
+arifraihan062003@gmail.com 
